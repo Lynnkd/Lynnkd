@@ -1,10 +1,9 @@
-### Hi there 👋
+### oI STALKER 👋
+Eu não trabalho,porém estou cursando DS na ETEC Pauslitano, não
+pretendo dar continuidade na careira de DS, pretendo ganhar 
+dinheiro com o trabalho e começar a cursar psicologia.
 
-<!--
-**Lynnkd/Lynnkd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
+Sobre mim:
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
 - 👯 I’m looking to collaborate on ...
