@@ -12,4 +12,4 @@ dinheiro com o trabalho e começar a cursar psicologia.
 •Estou disponível para trabalhos e atividades relacionados ao meu curso;
 
 °Confira alguns acessando o meu perfil!🌹
-![No gender,only Swag](https://images.app.goo.gl/72WvFTNSmJy55eA8A)
+![](https://images.app.goo.gl/72WvFTNSmJy55eA8A)
