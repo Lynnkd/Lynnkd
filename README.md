@@ -11,4 +11,4 @@ Sobre mim:
 •Fato curioso:Sou apaixonado por tomate🍅;
 •Estou disponível para trabalhos e atividades relacionados ao meu curso;
 
-°Confira alguns acessando o meu perfil!🌹
+°Confira alguns acessando o meu perfil!🌹🧷
