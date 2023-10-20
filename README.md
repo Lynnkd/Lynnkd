@@ -12,5 +12,4 @@ dinheiro com o trabalho e começar a cursar psicologia.
 •Estou disponível para trabalhos e atividades relacionados ao meu curso;
 
 °Confira alguns acessando o meu perfil!🌹
-![Me rn](
-https://images.app.goo.gl/MgqprGDXEHe9Qx459)
+![Me rn](https://images.app.goo.gl/6dUCnPiorcipJB6PA)
