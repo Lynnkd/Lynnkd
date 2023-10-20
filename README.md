@@ -13,4 +13,4 @@ dinheiro com o trabalho e começar a cursar psicologia.
 
 °Confira alguns acessando o meu perfil!🌹
 ![Me rn](
-https://images.app.goo.gl/MgqprGDXEHe9Qx459
+https://images.app.goo.gl/MgqprGDXEHe9Qx459)
