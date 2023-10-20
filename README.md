@@ -8,7 +8,7 @@ dinheiro com o trabalho e começar a cursar psicologia.
 •Tenho 15 anos;
 •Estudo na Etec Paulistano;
 •E-mail: lynngatone712@gmail.com;
-•Fato curioso:Sou apaixonado por `#FF00000tomate🍅;
+•Fato curioso:Sou apaixonado por `#FF00000tomate🍅`;
 •Estou disponível para trabalhos e atividades relacionados ao meu curso;
 
 °Confira alguns acessando o meu perfil!🌹🧷
