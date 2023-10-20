@@ -3,7 +3,7 @@ Eu sou o Lynn,eu não trabalho,porém estou cursando DS na ETEC Pauslitano, não
 pretendo dar continuidade na careira de DS, pretendo ganhar 
 dinheiro com o trabalho e começar a cursar psicologia.
 
-Sobre mim:
+### Sobre mim:
 •Meu nome completo é Lynn Dias da Rocha;
 •Tenho 15 anos;
 •Estudo na Etec Paulistano;
