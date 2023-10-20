@@ -1,15 +1,14 @@
 ### Olá visitante👋
-Eu não trabalho,porém estou cursando DS na ETEC Pauslitano, não
+Eu sou o Lynn,eu não trabalho,porém estou cursando DS na ETEC Pauslitano, não
 pretendo dar continuidade na careira de DS, pretendo ganhar 
 dinheiro com o trabalho e começar a cursar psicologia.
 
 Sobre mim:
-- 🔭 Tenho 15 anos;
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+•Meu nome completo é Lynn Dias da Rocha;
+•Tenho 15 anos;
+•Estudo na Etec Paulistano;
+•E-mail: lynngatone712@gmail.com;
+•Fato curioso:Sou apaixonado por tomate🍅;
+•Estou disponível para trabalhos e atividades relacionados ao meu curso;
+
+°Confira alguns acessando o meu perfil!🌹
