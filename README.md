@@ -11,4 +11,5 @@ dinheiro com o trabalho e começar a cursar psicologia.
 •Fato curioso:Sou apaixonado por `#FF0000tomate🍅`;
 •Estou disponível para trabalhos e atividades relacionados ao meu curso;
 
-°Confira alguns acessando o meu perfil!🌹🧷
+°Confira alguns acessando o meu perfil!🌹
+![https://images.app.goo.gl/72WvFTNSmJy55eA8A]
